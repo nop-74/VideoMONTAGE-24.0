@@ -79,13 +79,21 @@
 - 6. Подхватывает внешний файл настроек settings.reg (если находится рядом с инсталлятором)
  
   ##  [СКАЧАТЬ ПРОГРАММУ](https://clck.ru/3RErXo)
+  ##  [ЧИТАТЬ О ПРОГРАММЕ НА ЯНДЕКС ДЗЕН ](https://dzen.ru/a/aWT_vJ3c1XKUHSr2)
+  ##  [SOFT на PYTHON](https://t.me/python_softs)
+  ##  [ДОНАТ](https://t.me/buyer_2026)
+  ##  [НАПИСАТЬ МНЕ В TELEGRAM](https://t.me/fradyrad)
  
 ## Угостить меня Кофе
 
 ![Alt text](https://github.com/nop-74/OPEN-AI-FREE-KEYS/blob/main/100.jpg)
 
 
- ##  [СКАЧАТЬ ПРОГРАММУ](https://clck.ru/3RErXo)
+  ##  [СКАЧАТЬ ПРОГРАММУ](https://clck.ru/3RErXo)
+  ##  [ЧИТАТЬ О ПРОГРАММЕ НА ЯНДЕКС ДЗЕН ](https://dzen.ru/a/aWT_vJ3c1XKUHSr2)
+  ##  [SOFT на PYTHON](https://t.me/python_softs)
+  ##  [ДОНАТ](https://t.me/buyer_2026)
+  ##  [НАПИСАТЬ МНЕ В TELEGRAM](https://t.me/fradyrad)
 
 
 
